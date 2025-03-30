@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @cody-ferguson
-- 📫 How to reach me: Email me at codylee1011@hotmail.com
